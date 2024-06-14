@@ -1,1 +1,1 @@
-f
+placeholder for images
